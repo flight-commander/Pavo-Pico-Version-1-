@@ -7,3 +7,4 @@ This is for Pavo Pico Version 1
 This is for Pavo Pico Version 1
 
 Watch YouTube video if you are having trouble. 
+https://www.youtube.com/watch?v=x1aqGg-BU-g&t=9s
